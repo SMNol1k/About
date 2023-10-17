@@ -12,5 +12,5 @@
 
 Увлекаюсь компьютерными играми и покером
 
-![](https://ru.freepik.com/free-photo/cheerful-construction-worker-builder-posing-with-tools_1178756.htm)
+![](https://png.pngtree.com/thumb_back/fw800/background/20230330/pngtree-cheerful-builder-man-carrying-ladder-indoors-photo-image_2136506.jpg)
 ![](76025201-jolly-builder.jpg)
